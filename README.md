@@ -2,7 +2,7 @@
 - 👀 I’m interested in civilization
 - 🌱 I’m currently learning about the maya
 - 💞️ I’m looking to collaborate on the relation between civilization
-- 📫 How to reach me : by sending an email on shahrazad.rahme@umontreal.ca
+- 📫 How to reach me : by sending an email to shahrazad.rahme@umontreal.ca
 - 😄 Pronouns: She
 
 <!---
