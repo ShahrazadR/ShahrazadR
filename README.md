@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ShahrazadR
 - 👀 I’m interested in civilizations
-- 🌱 I’m currently learning about the maya
-- 💞️ I’m looking to collaborate on the relation between civilization
+- 🌱 I’m currently learning about the maya civilization
+- 💞️ I’m looking to collaborate on the relations between civilizations
 - 📫 How to reach me : by sending an email to shahrazad.rahme@umontreal.ca
 - 😄 Pronouns: She
 
